@@ -5,4 +5,4 @@
 
 <br/>
 <h1>Baixe e divirta-se</h1>
-<p>hahaha as conversas são fake então pode rir avontade, só zoando com a galera da faculdade.</p>
+<p>hahaha as conversas são fake então pode rir a vontade, só zoando com a galera da faculdade.</p>
